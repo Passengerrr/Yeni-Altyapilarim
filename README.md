@@ -1,3 +1,3 @@
-# Yeni Altyapılarım
+# MODLOFF KARDEŞİMİN YENİ BOTLARI
 
-50 starda yeni altyapılarımı paylaşacam.
+**BOTLAR GELDİĞİNDE BURDA PAYLAŞILCAKTIR**
